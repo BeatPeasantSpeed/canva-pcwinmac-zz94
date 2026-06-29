@@ -1,4 +1,4 @@
-# 
+# Seguro Canva preajustes para Mac OS | Mejor Canva preajustes para PC Windows. Con nodos de geometría y edición no destructiva — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
